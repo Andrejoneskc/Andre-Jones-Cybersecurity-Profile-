@@ -1,1 +1,2 @@
 # Andre-Jones-Cybersecurity-Profile-
+In my past career my ethics have been at the highest standards. I've delivered billions of dollars worth of pharmaceuticals to hospitals who were dependent on my ethics, honesty, and responsibility. Being responsible for thousands of patients getting the care they needed made me realize that my ethics went far above and beyond the norm. I see in the cybersecurity space that you need integrity and a trust that creates a bond between many parties.
